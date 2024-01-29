@@ -1,0 +1,2 @@
+# SkripsiArAta
+APK 
